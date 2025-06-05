@@ -1,1 +1,1 @@
-# Selamat-Idhul-Adha
+"Idul Adha bukan soal seberapa besar hewan yang dikurbankan, tapi seberapa ikhlas hati yang menyerahkan. Selamat Hari Raya Idul Adha, semoga setiap niat baik dibalas dengan berkah yang luar biasa.""Di Hari Raya Idul Adha, mari kita kurbankan ego, dendam, dan... diet yang tertunda. Daging kambing mah halal, asal jangan sampe lupa kadar kolesterol!"
